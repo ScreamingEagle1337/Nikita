@@ -5,7 +5,7 @@
 
 
 
-[![Typing SVG](https://media.tenor.com/zXMGPq0piPkAAAAM/engine-engineer.gif)](https://git.io/typing-svg)
+[![Typing SVG](https://www.deviantart.com/astarnamedthesun/art/M200-Intervention-1210161149)](https://git.io/typing-svg)
 
 </div>
 
